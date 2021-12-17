@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @wissanu
+- 👀 I’m technology and innovation.
+- 💞️ I’m looking friend for sharing knowledge.
+- 📫 You can contact me through email: thungrut@gmail.com, FB: https://www.facebook.com/tor.kucb
