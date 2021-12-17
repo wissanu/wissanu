@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @wissanu
-- 👀 I’m technology and innovation.
-- 💞️ I’m looking friend for sharing knowledge.
+- 👀 I’m interested in technology and innovation espescially algorithm and data science.
+- 👀 For now, i'm trying to learn some new language for coding PWA and so on.
+- 💞️ I’m looking for friend to share a knowledge.
 - 📫 You can contact me through email: thungrut@gmail.com, FB: https://www.facebook.com/tor.kucb
